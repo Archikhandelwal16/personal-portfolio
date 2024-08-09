@@ -1,0 +1,1 @@
+To create a personal portfolio website that showcases my skills, projects, and experiences. This website serves as a professional online presence where potential employers, clients, and collaborators can learn more about me and my projects.
